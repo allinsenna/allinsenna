@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @allinsenna
+- 👀 I’m interested in coding bikes skiing and other more
+- 🌱 I’m currently learning python and c#
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me - instagram.
+- 😄 Pronouns: I'm not gay bruh
+- ⚡ Fun fact: No fun fact today guys
